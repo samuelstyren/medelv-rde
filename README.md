@@ -1,1 +1,2 @@
-21 är halften av sanningen
+42 är the answar
+
