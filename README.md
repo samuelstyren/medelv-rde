@@ -1,2 +1,2 @@
-42 är the answar
+42 är the answer
 
