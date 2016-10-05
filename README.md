@@ -1,1 +1,1 @@
-nej samuel 42 är inte svaret
+21 är halften av sanningen
